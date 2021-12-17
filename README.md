@@ -9,7 +9,7 @@
 
 ### Modo de preparo:
 1. Em uma panela funda, acrescente o leite condensado, a margarina e o chocolate em pó.
-
 1. Cozinhe em fogo médio e mexa até que o brigadeiro comece a desgrudar da panela.
-
 1. Deixe esfriar e faça pequenas bolas com a mão passando a massa no chocolate granulado.
+
+###### Link da receita: [https://www.tudogostoso.com.br/receita/114-brigadeiro.html]
